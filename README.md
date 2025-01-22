@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me maswanganyea30@gmail.com and Linkedlin https://www.linkedin.com/in/andronica-maswanganye/
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I love Code, but it loves me.
+- ⚡ Fun fact: I dont love Code, but it loves me.
 
